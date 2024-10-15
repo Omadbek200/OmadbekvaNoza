@@ -1,0 +1,2 @@
+# OmadbekvaNoza
+WEllo world 
